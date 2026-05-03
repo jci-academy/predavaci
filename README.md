@@ -1,1 +1,1 @@
-
+jci forma za predavace
